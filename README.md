@@ -1,4 +1,4 @@
-# sohnarealestate
+# Sohna Real Estate
 Sohna Real Estate – Your Trusted Property Partner in Sohna, Gurgaon
 
 Sohna Real Estate is a leading real estate platform dedicated to helping buyers, investors, and NRIs discover the best property opportunities in Sohna and South Gurgaon. With extensive market knowledge and personalized guidance, we assist clients in finding residential plots, luxury apartments, independent floors, commercial properties, and investment projects that match their goals.
